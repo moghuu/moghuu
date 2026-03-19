@@ -2,7 +2,7 @@
 
 **`Electrical Engineering Student`**
 
-Undergraduate in the School of Electrical Engineering and Informatics at Bandung Institute of Technology on Electrical Engineering. Have a passion learning new technology. Excellent in management, and leadership, and also skilled at video editing using Premiere Pro. Interest in technology especially in design while also have interest on aviation.
+Undergraduate in the School of Electrical Engineering and Informatics at Bandung Institute of Technology on Electrical Engineering. Have a passion learning new technology. Interest in technology especially in design while also have interest on aviation.
 
 ---
 
